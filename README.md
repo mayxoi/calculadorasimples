@@ -11,6 +11,12 @@ Por ser um projeto inicial, posso está fazendo atualizações em breve. Então 
 
 ### Créditos
 LinkedIn: https://www.linkedin.com/in/mayanna-kelly-de-sousa-leal-06a367184/
+
+
 Discord: Mayanna#4358
+
+
 E-mail: maaysousa2015@gmail.com
+
+
 GitHub: https://github.com/mayxoi
